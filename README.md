@@ -1,5 +1,4 @@
 # Resume-html-css
 
 
-![image](https://github.com/user-attachments/assets/9dbf21fc-6da9-4273-b54e-65bcfa521805)
-
+![image](https://github.com/user-attachments/assets/e23c0a4d-818e-4411-a2af-f0a730276274)
